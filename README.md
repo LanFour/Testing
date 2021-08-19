@@ -1,1 +1,1 @@
-leatrning
+learning
